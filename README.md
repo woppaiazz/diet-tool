@@ -1,1 +1,1 @@
-sorry if i have bad struktur
+sorry if i have bad structure
